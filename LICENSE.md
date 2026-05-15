@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with exclusive NFT Floor Sweeper for opensea sniper bot | trailing-stop & slippage-control. Featuring trailing-stop and slippage-control, it's
 
 
 
